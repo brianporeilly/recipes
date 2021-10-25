@@ -1,3 +1,5 @@
 # recipes
 
-* [Turkey Lasagna](https://github.com/brianporeilly/recipes/blob/master/turkey-lasagna.md)
+* [Sweet Potato Bake](sweet-potato-bake.md)
+* [Turkey Lasagna](turkey-lasagna.md)
+* [Green Bean Casserole](green-bean-casserole.md)
