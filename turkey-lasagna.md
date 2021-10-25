@@ -1,4 +1,4 @@
-# Turkey Lasagna Recipe
+# Turkey Lasagna
 
 ## Ingredients
 
