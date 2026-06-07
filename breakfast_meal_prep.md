@@ -26,7 +26,8 @@ These popsicles reframe a protein-packed breakfast as a frozen treat. Blending c
 1. **Pulverize the Seeds:** Place the milk, rolled oats, ground flaxseed, and chia seeds into a high-powered blender first. Blend on high for 30 seconds to break down the seeds completely so they don't form a crunchy layer.
 2. **Build the Base:** Add the Greek yogurt (or cottage cheese), banana, and sweetener. Blend until completely smooth.
 3. **Incorporate Fruit:** Toss in the frozen berries or mango. Blend on high until the texture is silky and resembling a thick milkshake. 
-4. **Mold and Freeze:** * **Popsicles:** Pour the mixture into silicone popsicle molds, insert sticks, and freeze for at least 4 hours.
+4. **Mold and Freeze:**
+   * **Popsicles:** Pour the mixture into silicone popsicle molds, insert sticks, and freeze for at least 4 hours.
    * **Smoothie Discs:** Pour remaining mixture into silicone muffin cups/liners (about 1/2 inch thick) and freeze.
 
 ### ðŸ¥¶ Freezer & Reheat Instructions
@@ -67,7 +68,8 @@ These pancakes swap traditional white flour for whole oats and use cottage chees
 
 ### ðŸ¥¶ Freezer & Reheat Instructions
 * **Storage (Flash Freeze):** Arrange cooled pancakes in a single layer on a parchment-lined baking sheet. Freeze for 1 hour until solid, then transfer them into a zippered freezer bag. This prevents them from sticking together.
-* **Morning Serving:** * **Toaster Method (Best):** Pop frozen pancakes directly into the toaster on a medium setting. They reheat fast and develop crisp edges.
+* **Morning Serving:**
+  * **Toaster Method (Best):** Pop frozen pancakes directly into the toaster on a medium setting. They reheat fast and develop crisp edges.
   * **Microwave Method:** Stack 2-3 pancakes on a paper towel and microwave for 30-45 seconds.
 
 ---
@@ -102,7 +104,8 @@ Instead of standing over a stove flipping individual quesadillas, this method co
 
 ### ðŸ¥¶ Freezer & Reheat Instructions
 * **Storage:** Flash-freeze the sliced wedges on a baking sheet for 1 hour, then stack them into freezer bags with small pieces of parchment paper between layers.
-* **Morning Serving:** * **Microwave (Fastest):** Wrap a frozen wedge in a paper towel and microwave for 45-60 seconds.
+* **Morning Serving:**
+  * **Microwave (Fastest):** Wrap a frozen wedge in a paper towel and microwave for 45-60 seconds.
   * **Air Fryer/Toaster Oven (Crispiest):** Heat at 350Â°F (175Â°C) for 4-5 minutes until the cheese melts and the tortilla crisps up.
 
 ---
@@ -132,5 +135,6 @@ A high-protein, grab-and-go spin on biscuits and gravy flavors. Baking eggs in a
 
 ### ðŸ¥¶ Freezer & Reheat Instructions
 * **Storage:** Place all wrapped sandwiches directly into a heavy-duty freezer storage bag. They keep wonderfully for up to 3 months.
-* **Morning Serving:** * **Microwave Method (From Frozen):** *Remove aluminum foil if used.* Leave the sandwich wrapped in its parchment paper (or wrap it in a damp paper towel). **Crucial step:** Microwave at **50% power for 60 seconds**, flip, and microwave for another 30-45 seconds at full power. Lowering the initial power ensures the center heats through without overcooking the biscuit into a chewy texture.
+* **Morning Serving:**
+  * **Microwave Method (From Frozen):** *Remove aluminum foil if used.* Leave the sandwich wrapped in its parchment paper (or wrap it in a damp paper towel). **Crucial step:** Microwave at **50% power for 60 seconds**, flip, and microwave for another 30-45 seconds at full power. Lowering the initial power ensures the center heats through without overcooking the biscuit into a chewy texture.
   * **Oven Method (If wrapped in foil):** Place foil-wrapped sandwiches straight into an oven or air fryer at 350Â°F (175Â°C) for 12-15 minutes while getting the kids dressed.
