@@ -99,3 +99,24 @@ This replaces the flimsy, chalky store-bought lunchable crusts with actual chewy
    * Pull 2 crusts straight out of the freezer and put them into the main compartment of their bento/lunchbox completely frozen.
    * In the side compartments, pack a small container of pizza sauce, a small pile of mozzarella, and a pile of mini pepperonis.
    * **By lunchtime**, the crusts will be completely thawed, soft, and perfectly chewy. The kids get the interactive fun of assembling their own cold pizzas at school.
+
+## 🥐 6. High-Yield Ham & Cheese Crescent Pockets
+By using standard refrigerated crescent dough and skipping eggs entirely, you get a buttery, flaky pastry texture that kids love, packed with dense meat protein and fat.
+### 🛒 Ingredients
+ * 2 tubes **Standard Refrigerated Crescent Roll Dough** (e.g., Pillsbury)
+ * 8-16 slices **Deli Ham** (thinner slices are easier for toddlers to chew)
+ * 8 slices **Cheddar or Swiss Cheese** (cut in half to make 16 small rectangles)
+ * 1 **Egg** + 1 tbsp water (Optional, for an egg wash to make them shiny and hold together)
+### 🥣 Step-by-Step Instructions
+ 1. **Preheat & Prep:** Preheat your oven to 375°F (190°C). Line a large baking sheet with parchment paper.
+ 2. **Unroll and Layer:** Unroll the crescent dough and separate it into the 16 standard triangles.
+ 3. **The Moisture Secret:** Take 1–2 slices of deli ham and pat them dry with a paper towel. *Removing surface moisture from the deli meat keeps the inside of the crescent dough from getting gummy or soggy during freezing and reheating.*
+ 4. **Assemble:** Place the dried ham and a half-slice of cheese onto the wide end of a dough triangle. Roll it up toward the point, tucking the corners in slightly so the cheese doesn't leak out completely onto the pan.
+ 5. **Bake:** Arrange on the baking sheet. If using the optional egg wash, brush the tops lightly. Bake for 11–13 minutes until the pastry is deeply golden brown.
+ 6. **Cool Completely:** Let them cool completely on a wire rack so no trapped steam turns the pastry mushy.
+### 🥶 Freezer & Reheat Instructions
+ * **Storage (Flash Freeze):** Freeze the completely cooled crescents in a single layer on a tray for 1 hour, then transfer them into a gallon freezer bag.
+ * **Morning Reheat:**
+   * **Microwave (Fastest):** Wrap a frozen crescent roll loosely in a paper towel and microwave for 35–45 seconds.
+   * **Toaster Oven/Air Fryer (Crispiest):** Heat at 350°F (175°C) for 4–5 minutes. This brings back the original flaky texture of the bakery dough perfectly.
+
