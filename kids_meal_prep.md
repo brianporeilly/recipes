@@ -120,3 +120,22 @@ By using standard refrigerated crescent dough and skipping eggs entirely, you ge
    * **Microwave (Fastest):** Wrap a frozen crescent roll loosely in a paper towel and microwave for 35–45 seconds.
    * **Toaster Oven/Air Fryer (Crispiest):** Heat at 350°F (175°C) for 4–5 minutes. This brings back the original flaky texture of the bakery dough perfectly.
 
+## 🍔 7. Bulk Taco "Sliders" on Hawaiian Rolls
+By baking a whole 12-pack of Hawaiian sweet rolls at once, you can mass-produce an entire week of lunches in 15 minutes. Ground beef provides an excellent source of protein and iron that is far easier for young kids to chew than standard deli meats.
+### 🛒 Ingredients
+ * 1 pack (12-count) **Hawaiian Sweet Rolls**
+ * 1 lb **Ground Beef** (or Ground Turkey)
+ * 1 packet **Mild Taco Seasoning** (or standard, sweet Sloppy Joe sauce)
+ * 1.5 cups **Shredded Cheddar or Monterey Jack Cheese**
+ * 2 tbsp **Butter** (melted, for brushing the tops)
+### 🥣 Step-by-Step Instructions
+ 1. **Cook the Filling:** Brown the ground beef in a skillet over medium-high heat until fully cooked. Drain excess fat, add the taco seasoning and water according to the packet instructions, and simmer until the sauce is thick and completely absorbed into the meat. Let it cool slightly.
+ 2. **The "Giant Sandwich" Slice:** Preheat your oven to 350°F (175°C). Take the entire block of Hawaiian rolls out of the package, but **do not separate them into individual rolls**. Use a long serrated knife to slice the entire block horizontally down the middle, creating one giant top bun and one giant bottom bun.
+ 3. **Assemble in Bulk:** Place the bottom half of the rolls onto a baking sheet. Spread the taco meat evenly across the bread. Top with the shredded cheese (which will act as the "glue" holding the top and bottom together). Place the giant top bun section back over the cheese.
+ 4. **Bake:** Brush the top of the rolls lightly with melted butter. Bake for 10 minutes until the cheese is fully melted and the tops of the buns are lightly toasted.
+ 5. **Cut and Cool:** Let the block cool for 5 minutes, then use your knife to slice along the natural lines of the rolls to separate them into 12 individual mini sliders. Place them on a wire rack to cool completely.
+### 🥶 Freezer & Reheat Instructions
+ * **Storage:** Wrap each individual slider tightly in parchment paper or aluminum foil, then toss them all into a gallon freezer bag.
+ * **Morning Packing Workflow:**
+   * **Microwave Method:** Pull a wrapped slider from the freezer. *Remove foil if used.* Leave it in its parchment paper (or wrap in a paper towel) and microwave for **30–45 seconds** until the center is warm.
+   * Slide it straight into their lunchbox. By lunchtime, the sweet bun will be soft and room-temperature, and the meat and cheese will be perfectly set.
